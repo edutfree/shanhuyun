@@ -1,2 +1,24 @@
-# shanhuyun
-闪狐云官网地址
+# 闪狐云flashfox官网地址
+
+永久官网：[flashfox.pro](https://w06.ffwebb01.cc/register?aff=tjqHfN9w)
+
+或：[闪狐云国内直连官网地址](https://inv03.ffaff.cc/register?aff=tjqHfN9w)
+
+## 闪狐云flashfox介绍
+
+闪狐云shanhuyun，BGP隧道中转，IPLC高速内网纯专线出口，5大运营商动态优化线路，畅享全球网络无缝连接。
+
+trojan协议节点，轻量、高速、采用TLS协议加密技术。解锁全球流媒体、AI工具。1000Mbps高速带宽，即便在晚高峰时段，也不会限制速度，不限制IP和设备数量
+
+## 闪狐云优惠码
+
+不定期更新
+
+## 闪狐云flashfox价格
+
+|套餐|Basic Plan|Standard Plan|Advanced Plan|Premium Plan|
+|----|----|----|----|----|
+|月付|¥20|¥40|¥72|¥125|
+|季付|¥54|¥108|¥194|¥337|
+|半年付|¥102|¥204|¥367|¥637|
+|年付|¥192|¥384|¥691|¥1200|
