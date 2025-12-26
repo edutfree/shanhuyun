@@ -20,7 +20,11 @@ trojan协议节点，轻量、高速、采用TLS协议加密技术。解锁全�
 
 ## 闪狐云优惠码
 
-不定期更新
+2025年圣诞元旦佳节闪狐云flashfox大促优惠说明：
+
+月付/季度/半年：享受85折优惠，优惠码：[fox202685](https://w06.ffwebb01.cc/register?aff=tjqHfN9w)
+
+年付/2年/3年：享受8折优惠，优惠码：[fox202680](https://w06.ffwebb01.cc/register?aff=tjqHfN9w)
 
 ## 闪狐云flashfox价格
 
